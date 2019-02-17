@@ -437,10 +437,5 @@ Saturday
 
 Today was to be rested.
 
-## January 17 2019  
-Sunday  
-
-Listening was starting twice.
-
 
 
