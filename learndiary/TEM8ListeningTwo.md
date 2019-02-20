@@ -114,3 +114,8 @@ Monday
 ## Frebuary.19 2019  
 Tuesday
   Listening and Following.
+
+## Frebuary.19 2019  
+Wednesday
+  
+Writing content using 3-5 sentences.   
