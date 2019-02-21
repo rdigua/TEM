@@ -1,12 +1,12 @@
 # Diary
 
-## Frebuary.17 2019
+## February.17 2019
 
 Sunday
 
 First day at twice listening of TEM8 mp3 was learning.
 
-## Frebuary.18 2019  
+## February.18 2019  
 Monday
 
 > TEM8-2008.mp3  
@@ -111,11 +111,17 @@ Monday
 - One man and one woman continue talk about what a large part of your role is understanding at Televison State. Thinking the role of media agencies needs to be about collaboration and openness and fostering creativity, but the key is how that is done, and how we ensure  that everything is about the best interests of our clients.
 
 
-## Frebuary.19 2019  
+## February.19 2019  
 Tuesday
   Listening and Following.
 
-## Frebuary.19 2019  
+## February.19 2019  
 Wednesday
-  
+ 
 Writing content using 3-5 sentences.   
+
+## February.20 2019
+
+Thuresday
+
+Words.
