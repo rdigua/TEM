@@ -115,13 +115,19 @@ Monday
 Tuesday
   Listening and Following.
 
-## February.19 2019  
+## February.20 2019  
 Wednesday
  
 Writing content using 3-5 sentences.   
 
-## February.20 2019
+## February.21 2019
 
 Thuresday
 
 Words.
+
+## February.22 2019
+
+Friday
+
+Comprehension.
